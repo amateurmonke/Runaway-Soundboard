@@ -1,1 +1,1 @@
-got bored in webtech class lmao
+# got bored in webtech class lmao
